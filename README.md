@@ -1,3 +1,4 @@
+![IMG_20250124_135313_1](https://github.com/user-attachments/assets/b968e0be-640a-490b-9741-4e8096555caa)
 ### proof of newspapers being taken from our house
 
 Date: January 24, 2025
